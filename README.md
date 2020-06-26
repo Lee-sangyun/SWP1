@@ -1,1 +1,1 @@
-20203115 Sangyun Lee
+Sangyun Lee
